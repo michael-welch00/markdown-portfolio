@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Some emojis:
+- Heart ❤️
+- Black heart 🖤
+- Broken heart 💔
+- Heartthrob 💗
